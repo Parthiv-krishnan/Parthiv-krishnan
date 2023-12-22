@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Parthiv krishnan s
+- 👀 I’m interested in tec
+- 🌱 I’m currently learning programing
